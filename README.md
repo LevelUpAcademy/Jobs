@@ -9,3 +9,6 @@ https://workingatbooking.com/
 
 ## TV Globo
 https://talentos.globo.com/#/oportunidades
+
+## Gazeus - Games
+https://www.gazeus.com/pt/carreiras/
